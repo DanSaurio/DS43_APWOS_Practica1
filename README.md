@@ -1,0 +1,10 @@
+  Vista previa de la pagina web
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page](https://github.com/user-attachments/assets/68623828-035f-407b-83cb-0710cb512df7)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (1)](https://github.com/user-attachments/assets/09d3a861-948c-4e70-a622-3940650bc84a)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (2)](https://github.com/user-attachments/assets/0e296464-ee16-46c8-abe6-a85ba8065a86)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (3)](https://github.com/user-attachments/assets/a07ec538-7519-4385-9f60-9a3c2db5c438)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (4)](https://github.com/user-attachments/assets/c0cb3464-c2db-4ff9-b53e-11f8b479f73b)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (5)](https://github.com/user-attachments/assets/598c8850-c22c-48d6-8aaf-7cb591cfbd7d)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (6)](https://github.com/user-attachments/assets/f2fa2b3f-28d0-4568-a2ec-97f98f88cbf1)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (7)](https://github.com/user-attachments/assets/b44619f5-217b-4370-83cf-30f4b82a10db)
+  ![DAN JOAB TERAN DIAZ - Práctica #1_ Landing Page (8)](https://github.com/user-attachments/assets/aa521ee5-4195-4c98-87d3-9abfbda363ca)
